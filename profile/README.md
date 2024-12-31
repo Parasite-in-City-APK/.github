@@ -107,4 +107,4 @@ Updates depend on the developer’s release schedule. Check the download source 
 
 Parasite in City APK offers an intense and thrilling survival experience that’s perfect for fans of action and horror games. With its retro pixel-art graphics, compelling storyline, and challenging gameplay, it’s a must-play for Android users seeking an immersive adventure.  
 
-Download the APK today and find out if you have what it takes to survive the horrors lurking in the city!  
+Download the APK today and find out if you have what it takes to survive the horrors lurking in the city!
