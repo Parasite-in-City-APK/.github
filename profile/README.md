@@ -4,7 +4,7 @@
 
 ## Click Download Now : [Parasite in City APK](https://www.apkbros.com/Parasite-in-City-APK)
 
-![image](https://github.com/user-attachments/assets/f045e0d1-4f03-4ca7-b7e2-a0492538fa39)
+![image](https://github.com/user-attachments/assets/edea687c-b6c2-46bb-88d5-f27e4e745787)
 
 ### What is Parasite in City APK?  
 
