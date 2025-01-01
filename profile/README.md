@@ -1,6 +1,8 @@
 ## Parasite in City APK: Survive the Nightmare  
 
 **Parasite in City APK** invites players into a world overrun by fearsome creatures, blending survival, horror, and action in an unforgettable 2D pixel-art environment. As a lone survivor, your mission is simple yet harrowing: escape the cursed city while battling enemies, solving puzzles, and uncovering its dark mysteries.  
+![Parasite in City APK 1 2](https://github.com/user-attachments/assets/5ff50ea3-4f44-4e1f-85da-25e8658e05a2)
+
 
 ## Click Download Now : [Parasite in City APK](https://www.apkbros.com/Parasite-in-City-APK)
 
@@ -30,6 +32,7 @@ Parasite in City is a retro-style survival game that has gained a cult following
   Designed for mobile devices, the controls are easy to learn but challenging to master.  
 
 ---
+![Parasite in City APK 1 2 (Android:IOS) - Free Download Latest Version 2025](https://github.com/user-attachments/assets/0f24c35b-da7b-41d9-abd2-ccb09098e1b6)
 
 ### How to Download Parasite in City APK  
 
